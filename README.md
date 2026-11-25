@@ -20,7 +20,7 @@
 - Semester 1 lab projects and building daily problem-solving habits
 
 ## Connect With Me
-- LinkedIn : https://www.linkedin.com/in/piyush-panwar
+- LinkedIn : https://www.linkedin.com/in/piyush-panwar-622798431/
 - Email : piyushpanwar0719@gmail.com
 
  
